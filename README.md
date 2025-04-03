@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **stutis070@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OQQz_eO1qvv41d48XHNphH1LT6OFkzHO/view?usp=sharing](https://drive.google.com/file/d/1OQQz_eO1qvv41d48XHNphH1LT6OFkzHO/view?usp=sharing)
+- 📄 Know about my experiences [ My resume ](https://drive.google.com/file/d/1OQQz_eO1qvv41d48XHNphH1LT6OFkzHO/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
